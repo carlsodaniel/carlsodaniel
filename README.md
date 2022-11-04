@@ -16,7 +16,9 @@ O Dia da Consciência Negra representou e representa um grande marco no moviment
 “Quando eles propõem essa data, mais do que uma alternativa, estão propondo a ideia de liberdade conquistada. Isso marca o movimento negro contemporâneo no Brasil em manifestações importantes, como a marcha pelo aniversário de 300 anos de Zumbi, que aconteceu em 1995″, explica o pesquisador Deivison Campos, que estuda o movimento negro e a história do Grupo Palmares.
 Ao prestar homenagem a Zumbi, a população negra fortalece as referências e mitos da cultura histórica e da trajetória negra no Brasil.
 A data também estimula o fortalecimento da unidade do movimento negro, que em 1988, junto com outros movimentos sociais, logrou uma representação constitucional, com medidas que, de certa forma, promovem reparações históricas, como a lei de preconceito de raça ou cor (nº 7.716, de janeiro de 1989).
-![image](https://user-images.githubusercontent.com/113718263/200055035-9ef4c880-cb5e-4750-9945-a31151238078.png)
+
+![image](https://user-images.githubusercontent.com/113718263/200056696-5d5ba391-854e-48d0-a754-63fde4e2671d.png)
+
 
 
 
