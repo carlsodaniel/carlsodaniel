@@ -25,10 +25,12 @@ Ao prestar homenagem a Zumbi, a população negra fortalece as referências e mi
 
 A data também estimula o fortalecimento da unidade do movimento negro, que em 1988, junto com outros movimentos sociais, logrou uma representação constitucional, com medidas que, de certa forma, promovem reparações históricas, como a lei de preconceito de raça ou cor (nº 7.716, de janeiro de 1989).
 
+Plataforma Redigir
+
+Tema de Redação: [E7X] MODELO ENEM - CULTURA NEGRA E IDENTIDADE BRASILEIRA  | Plataforma Redigir
 
 
 
-![3c89a7ec-ff7e-412c-9ef8-7a82c6d55d6a](https://user-images.githubusercontent.com/113718263/200049112-9b20e888-4ed4-44fa-b029-6ff03d16f7df.jpg)
 
 
 
